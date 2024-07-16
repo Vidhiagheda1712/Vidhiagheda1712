@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a full stack developer.
+I have completed Bachelor Of Commerce in July 2023 ,from VNSGU. I want to become Full Stack Developer.My ambition in life is to constantly challange myself to learn and grow both profesionally and personally in the feild of technology.
 
 
 ## 🌐 Socials:
